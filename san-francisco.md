@@ -3,7 +3,7 @@
 ## The Mission
 1. [Boogaloos](http://www.boogaloossf.com) for breakfast. 
 2. The Pirate Supply Store at [826 Valencia](https://826valencia.org)
-3. CAMP (Clarion Alley Mural Project), ally located between 17th & 18th Streets of Mission St and Valencia St
+3. CAMP (Clarion Alley Mural Project), alley located between 17th & 18th Streets of Mission St and Valencia St
 
 ## Coffee
 Because it needs its own section,
